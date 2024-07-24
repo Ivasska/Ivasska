@@ -14,7 +14,7 @@
 🌱 I’m currently learning Shopify  
   
 
-😊 I will be glad to meet you on [LinkedIn ](www.linkedin.com/in/ivanka-lapii-509817310)  
+😊 I will be glad to meet you on [LinkedIn ](https://www.linkedin.com/in/ivanka-lapii-509817310)  
   
 
 🔭 I am learning programming on my own, , so I will be glad to receive advice and experience from master...gurus...sensei🤓  
